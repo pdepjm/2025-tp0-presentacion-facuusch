@@ -28,3 +28,6 @@ veo muchas películas y series, me encantan los thrillers y las de acción
 Me dicen que soy igual a otro pibe del curso (no lo soy) y 
 4 de los 6 días de cursada me vas a ver con algo del rojo puesto.
 
+![Festejando los 20](https://github.com/pdepjm/2025-tp0-presentacion-facuusch/blob/main/cumplefeliz.jpg)
+
+![Con mi ídolo](https://github.com/pdepjm/2025-tp0-presentacion-facuusch/blob/main/facuylaso.jpg)
